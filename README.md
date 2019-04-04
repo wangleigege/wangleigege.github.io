@@ -1,3 +1,1 @@
-# www.supercw.cn
-#
-开心就完事了
+www.supercw.cn
