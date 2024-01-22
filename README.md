@@ -1,1 +1,1 @@
-www.supercw.cn
+a.666666.chat
