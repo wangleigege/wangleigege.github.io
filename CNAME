@@ -1,1 +1,1 @@
-abc.6666666.chat
+abc.666666.chat
